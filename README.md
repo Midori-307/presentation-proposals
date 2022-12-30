@@ -8,4 +8,5 @@ Milena has three years of experience leading the conceptualization and implement
 Currently, she brings the design system for the digital backbone of urban air mobility to life at Volocopter.
 In her free time, she plays tabletop RPGs, cares for close to 100 houseplants and sings in a rock band.
 
-[Linkedin]
+[Linkedin](https://www.linkedin.com/in/milena-neumann-874a3611a/)
+[Twitter](https://twitter.com/Midori__307)
